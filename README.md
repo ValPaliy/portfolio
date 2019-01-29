@@ -1,1 +1,1 @@
-Browse online or clone my portfolio for viewing online. Sincerely, Val Paliy. 
+Please feel free to browse my portfolio or clone it for viewing later locally. Sincerely, Val Paliy.
